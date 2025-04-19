@@ -1,1 +1,0 @@
-# MaksM-QA.github.io
